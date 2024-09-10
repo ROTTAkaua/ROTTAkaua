@@ -1,5 +1,10 @@
 - 👋 eu sou kaua de oliveira
-- ct: ...
+- tenho 15 anos 
+pedreira sp
+um anus ai  
+
+
+
 
 <!---
 ROTTAkaua/ROTTAkaua is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
